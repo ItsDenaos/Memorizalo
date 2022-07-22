@@ -1,1 +1,1 @@
-# [¡Memorízalo!](https://itsdenaos.github.io/memorizalo/)
+# [¡Memorízalo!](https://itsdenaos.github.io/Memorizalo/)
